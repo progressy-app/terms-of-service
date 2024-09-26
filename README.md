@@ -1,1 +1,2 @@
-# terms-of-service
+TERMS OF SERVVICE
+
